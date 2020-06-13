@@ -1,1 +1,1 @@
-# www.shopindianshop.in
+# www.blog.shopindianshop.in
